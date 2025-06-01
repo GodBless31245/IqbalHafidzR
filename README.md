@@ -1,7 +1,7 @@
 # IqbalHafidzR
 My GitHub profile README: web developer, video editor, tech consultant, and student. Showcasing my projects, style, and favorite quote.
 
-# 👋 Hi, I’m GodBless31245!
+# 👋 Hi, I’m Iqbal Hafidz!
 
 🎓 **Current Status:**  
 I'm a college student with a passion for technology, creativity, and helping others.
