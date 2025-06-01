@@ -48,8 +48,8 @@ I'm a college student with a passion for technology, creativity, and helping oth
 
 ## 🌐 Connect with Me
 
-- [Instagram](https://instagram.com/)  
-- [Facebook](https://facebook.com/)  
+- [Instagram](https://www.instagram.com/iqbalhamadhan/)  
+- [Facebook](https://www.facebook.com/share/1EuZ1kD2Ve/)  
 
 ---
 
